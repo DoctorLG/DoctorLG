@@ -2,7 +2,6 @@
 - 👀 I’m interested in all that makes sense for a better world
 - 💞️ I’m looking to collaborate on innovations
 - 📫 I am reachable on doctor_lg@icloud.com
-- 😄 Pronouns: Doctor LG
 - ⚡ Fun fact: Love remote controlled airplanes :-)
 
 <!---
